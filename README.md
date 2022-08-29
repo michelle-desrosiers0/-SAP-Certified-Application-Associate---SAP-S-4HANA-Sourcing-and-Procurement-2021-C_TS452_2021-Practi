@@ -1,0 +1,1 @@
+# -SAP-Certified-Application-Associate---SAP-S-4HANA-Sourcing-and-Procurement-2021-C_TS452_2021-Practi
